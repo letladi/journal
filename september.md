@@ -166,3 +166,7 @@ I just read this line from an NYT [article](https://www.nytimes.com/athletic/665
 > When Pistorius was released in 2024, it fell to June to respond on behalf of the Steenkamp family. "Has there been justice for Reeva?" she asked. "Has Oscar served enough time? There can never be justice if your loved one is never coming back, and no amount of time served will bring Reeva back.
 
 "We, who remain behind, are the ones serving a life sentence"
+
+## 29 September 2025
+
+I bought the $10k FTMO account this morning and made $133 (short 4 lots). I actually made a mistake because I should have bought the pounds account.
